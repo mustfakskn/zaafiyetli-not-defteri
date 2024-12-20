@@ -1,0 +1,1 @@
+# zaafiyetli-not-defteri
